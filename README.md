@@ -1,1 +1,0 @@
-# arun7pulse.github.io
